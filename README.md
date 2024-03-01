@@ -1,0 +1,1 @@
+# Este-cabe-alho-n-o-ser-afetado.
